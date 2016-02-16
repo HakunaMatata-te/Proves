@@ -9,6 +9,7 @@ Hello world Julie
 YOU WILL READ ME DUMB HUMAN.
 Or not... whatever i don't care anymore.
 Galilero, mont fuig, figaro... 
+Gomet blau. 
 ## Credits
 By Hakuna Matata team
 
