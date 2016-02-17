@@ -10,6 +10,8 @@ YOU WILL READ ME DUMB HUMAN.
 Or not... whatever i don't care anymore.
 Galilero, mont fuig, figaro... 
 Gomet blau. 
+
+Rainbow! :3
 ## Credits
 By Hakuna Matata team
 
